@@ -13,6 +13,7 @@ Any questions lmk on my discord server
 .　　　•　° ★　•  ☄️
 
 ▁▂▃▄▅▆▇▇▆▅▄▃▁▂.
+
 ➤ 𝙈𝙪𝙘𝙝 𝙂𝙞𝙫𝙚𝙬𝙖𝙮𝙨
 
 ➤ 𝘾𝙤𝙙 𝙈𝙤𝙙𝙙𝙚𝙙 𝘼𝙘𝙘𝙨
@@ -30,6 +31,9 @@ Any questions lmk on my discord server
 ➤ 𝗣𝗼𝗸𝗲𝗺𝗼𝗻 𝗴𝗼 𝘀𝗲𝗿𝘃𝗶𝗰𝗲𝘀
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ                  Ｊｏｉｎ Ｎｏｗ!
+
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
- discord.gg/jCcBcK5hz8
+
+discord.gg/jCcBcK5hz8
+
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
